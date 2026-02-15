@@ -1,2 +1,1 @@
-# Galactic-Manifestation-
-Blessed is The Bloodline 
+nft-assets-token-documentation-submition-varification
